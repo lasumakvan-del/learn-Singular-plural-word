@@ -1,1 +1,0 @@
-# learn-Singular-plural-word
